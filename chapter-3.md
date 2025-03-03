@@ -1,5 +1,7 @@
 # Weathering the Storm
 
-She searched frantically, calling out Shelldon's name, her voice a tiny squeak in the raging ocean. Then, she saw him! He was clinging to a discarded bottle cap, looking utterly bewildered. 
+Shay, initially horrified, found herself charmed by Shelldon's goofy apology. He offered her a tiny, glistening seashell – his lucky charm – and a nervous grin. Shay giggled; this was unlike anything she’d experienced.
 
-Their reunion was dramatic, even for shellfish. Shelldon, in a moment of pure brilliance, used his lucky seashell as a makeshift raft, rescuing Shelly from the treacherous waves. They drifted together until the storm subsided, holding on tight, the lucky shell keeping them afloat and their love afloat as well. 
+Their relationship blossomed amidst the vibrant coral reefs. They'd spend hours whispering secrets to the passing seahorses and racing each other across the sandy seabed. Shelldon would always lose, but his enthusiasm was infectious. Shay found herself laughing more than she ever had before, her pearl collection somehow less important.
+
+One day, a huge storm threatened their home. The waves crashed, tossing everything around. Shay and Shelldon found themselves separated, tumbled about by the fierce currents. Shay, clinging to a piece of driftwood, felt a pang of panic. She'd never felt so alone.
