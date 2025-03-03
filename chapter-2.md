@@ -1,4 +1,4 @@
-# Chapter 2
+# Trouble in Paradise
 
 Shelly, initially horrified, found herself charmed by Shelldon's goofy apology. He offered her a tiny, glistening seashell – his lucky charm – and a nervous grin. Shelly giggled; this was unlike anything she’d experienced. 
 

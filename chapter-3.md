@@ -1,4 +1,4 @@
-# Chapter 3
+# Weathering the Storm
 
 She searched frantically, calling out Shelldon's name, her voice a tiny squeak in the raging ocean. Then, she saw him! He was clinging to a discarded bottle cap, looking utterly bewildered. 
 

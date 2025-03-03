@@ -1,4 +1,4 @@
-# Chapter 1
+# Shelldon and Sally
 
 Shelly the scallop and Shelldon the shrimp were the unlikeliest of couples. Shelly was known for her sophisticated pearl collection and quiet evenings at the coral reef casino. Shelldon, on the other hand, was a bit of a goofball, always getting into scrapes with the grumpy crabs and losing his tiny spectacles. 
 

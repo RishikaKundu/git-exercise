@@ -1,6 +1,6 @@
 # Shellfish Romance
 
-- [Chapter 1](chapter1.md)
-- [Chapter 2](chapter2.md)
-- [Chapter 3](chapter3.md)
-- [Chapter 4](chapter4.md)
+- [Shelldon and Sally](chapter1.md)
+- [Trouble in Paradise](chapter2.md)
+- [Weathering the Storm](chapter3.md)
+- [Pearls in the Ocean](chapter4.md)
